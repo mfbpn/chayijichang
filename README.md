@@ -1,6 +1,6 @@
 # 茶艺机场官网地址
 
-最新地址：[cy.z49.top](https://www.chayigh.top/#/register?code=5KW9o1cg)
+最新地址：[www.chayigh.top](https://www.chayigh.top/#/register?code=zWUHW3mT)
 
 ## 茶艺机场介绍
 
